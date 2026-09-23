@@ -26,4 +26,13 @@ Our experienced trainers guide students through every aspect of defence examinat
 
 ---
 
+## Connect With Us
+
+- 🌐 **Website**: [chanakyacareerinstitute.com](https://chanakyacareerinstitute.com/best-nda-coaching-in-chandigarh/)
+- 👍 **Facebook**: [ChanakyaCareerInstitute5](https://www.facebook.com/ChanakyaCareerInstitute5/)
+- 📸 **Instagram**: [@chanakyacareerinstitute](https://www.instagram.com/chanakyacareerinstitute/)
+- 🎥 **YouTube**: [Chanakya.Career.Institute](https://www.youtube.com/@Chanakya.Career.Institute)
+
+---
+
 *Transform your dreams into reality with Chandigarh's leading defence exam preparation institute.*
